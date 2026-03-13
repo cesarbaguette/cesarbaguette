@@ -1,7 +1,12 @@
 ![](https://64.media.tumblr.com/39c0f80503df929bc157c60761e9045a/c401c185095f30ca-bf/s2048x3072/98624dae001464b11c6fec0f2f7c6c2cf0cf3e94.pnj)
 
+![](https://64.media.tumblr.com/36ba4939ed699072dd985f91db4d637a/c401c185095f30ca-bc/s75x75_c1/895e95b4621f4146f532a0c0da5a646dcc8adc92.gifv)
 ![](https://64.media.tumblr.com/0b451c98a14614467198d961c8de3082/c401c185095f30ca-4a/s250x400/f67a500b0229ede5478bf3c351fb6824bebf063a.gifv)
+![](https://64.media.tumblr.com/4e5b4119a7547d38fc2c0be0434a051f/c401c185095f30ca-91/s100x200/37bc0a2d5ed95ce12eac00d5a75eb79f773f6d36.pnj)
+![](https://64.media.tumblr.com/61351987ebb3d5992ebfc2bc0729909e/83233fc5c0573244-2d/s1280x1920/853f49d61cc705ca1be6dbb414f41b9e1421f2b4.pnj)
 ![](https://64.media.tumblr.com/1db8f2351154d17bc0dc522c990291fe/c401c185095f30ca-d2/s100x200/0c03bb9db0906b4b0d7bd03915fd8b3e1fd9fd72.pnj)
+![](https://64.media.tumblr.com/dd3a3340b3788d9540d7984267d974b1/c401c185095f30ca-9e/s100x200/150e594676f6cc0c98599d55d23ca80ab032873c.gifv)
+![](https://64.media.tumblr.com/36ba4939ed699072dd985f91db4d637a/c401c185095f30ca-bc/s75x75_c1/895e95b4621f4146f532a0c0da5a646dcc8adc92.gifv)
 
 <p align=center> call me rivers , rinkeli , taph ... i respond to anything , really !!</p>
 
