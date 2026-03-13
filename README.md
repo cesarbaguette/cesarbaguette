@@ -1,5 +1,3 @@
-## haaaiiii !!!!
-
 ![](https://64.media.tumblr.com/39c0f80503df929bc157c60761e9045a/c401c185095f30ca-bf/s2048x3072/98624dae001464b11c6fec0f2f7c6c2cf0cf3e94.pnj)
 
 ![](https://64.media.tumblr.com/0b451c98a14614467198d961c8de3082/c401c185095f30ca-4a/s250x400/f67a500b0229ede5478bf3c351fb6824bebf063a.gifv)
@@ -9,7 +7,7 @@ call me rivers , rinkeli , taph ... i respond to anything , really !!
 i can speak english and finnish and I'M 19 YEARS OLD !! 
 i like / kin a multitude of characters and will absolutely explode of joy if i'm regarded as them
 
-#FEEL FREE TO
+>FEEL FREE TO
 cuddle , interact , sit next to me ANYTHING !! i may not always talk but if you int w/ me i will respond !! if not by text then at least by action ... and if i don't react at all i'm probaby offtab :>
 
 SIGN MY STRAWPAGE / ATABOOK !!! if you want to , of course !
@@ -18,7 +16,7 @@ i accept most friend requests , and you can ask for my discord if you want to be
 
 IF YOU THINK WE'D GET ALONG I ENCOURAGE YOU TO INTERACT !!! i'm always too shy to , but i'm very friendly !!!
 
-#DNI IF
+>DNI IF
 you're under 16 years old , sorry !! again , i'm 19 , so i don't feel comfortable being friends with people that young ! ( you can still sit with me tho , this applies mainly to talking further !! )
 
 if you're bigoted in any manner or hate having fun and whimsy . i'm WOKE and CRINGE and i like having likeminded people around !
