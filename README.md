@@ -13,7 +13,7 @@
   <img src="https://64.media.tumblr.com/36ba4939ed699072dd985f91db4d637a/c401c185095f30ca-bc/s75x75_c1/895e95b4621f4146f532a0c0da5a646dcc8adc92.gifv">
 </p>
 
-<p align=center> call me rivers , rinkeli , taph ... i respond to anything , really !!</p>
+<p align=center> call me rinkeli , rivers , taph ... i respond to anything , really !!</p>
 
 <p align=center>i can speak english and finnish and I'M 19 YEARS OLD !!</p>
   
