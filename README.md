@@ -8,7 +8,6 @@
   <img src="https://64.media.tumblr.com/3f81634aff3ecd6f9b0e73b993bac901/30a8b5a67144ab44-94/s100x200/0000cdea5ecc17dd81b91f7218f6967403f5163c.pnj">
   <img src="https://64.media.tumblr.com/1db8f2351154d17bc0dc522c990291fe/c401c185095f30ca-d2/s100x200/0c03bb9db0906b4b0d7bd03915fd8b3e1fd9fd72.pnj">
   <img src="https://64.media.tumblr.com/4e5b4119a7547d38fc2c0be0434a051f/c401c185095f30ca-91/s100x200/37bc0a2d5ed95ce12eac00d5a75eb79f773f6d36.pnj">
-  <img src="https://64.media.tumblr.com/4e5b4119a7547d38fc2c0be0434a051f/c401c185095f30ca-91/s100x200/37bc0a2d5ed95ce12eac00d5a75eb79f773f6d36.pnj">
   <img src="https://64.media.tumblr.com/0b451c98a14614467198d961c8de3082/c401c185095f30ca-4a/s250x400/f67a500b0229ede5478bf3c351fb6824bebf063a.gifv">
   <img src="https://64.media.tumblr.com/36ba4939ed699072dd985f91db4d637a/c401c185095f30ca-bc/s75x75_c1/895e95b4621f4146f532a0c0da5a646dcc8adc92.gifv">
 </p>
