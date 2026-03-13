@@ -9,7 +9,7 @@
   
 <p align=center>i like / kin a multitude of characters and will absolutely explode of joy if i'm regarded as them</p>
 
-<p align=center><h3>FEEL FREE TO</h3></p>
+<h3 align=center>FEEL FREE TO</h3>
   
 <p align=center>cuddle , interact , sit next to me ANYTHING !! i may not always talk but if you int w/ me i will respond !! if not by text then at least by action ... and if i don't react at all i'm probaby offtab :></p>
   
@@ -19,7 +19,7 @@
   
 <p align=center>IF YOU THINK WE'D GET ALONG I ENCOURAGE YOU TO INTERACT !!! i'm always too shy to , but i'm very friendly !!!</p>
 
-<p align=center><h3></h3>DNI IF</h3></p>
+<h3 align=center>DNI IF</h3>
   
 <p align=center>you're under 16 years old , sorry !! again , i'm 19 , so i don't feel comfortable being friends with people that young ! ( you can still sit with me tho , this applies mainly to talking further !! )</p>
 
