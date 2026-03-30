@@ -39,10 +39,10 @@
   <img src="https://64.media.tumblr.com/98b446db4eea90db6be6c6018ef81685/c187429691d68602-21/s100x200/1657f5656383db0e397abdfbdd4354a3309e99e9.pnj">
   <img src="https://64.media.tumblr.com/c6eedc178ed7a9b15d08bcc1bac0c735/44afaa509468e9ad-91/s100x200/8916a60154cac21eb7cc7ab33ba86e75ac7670ce.pnj">
   <img src="https://64.media.tumblr.com/17407b2ce4ba9ce8ae7ae474c441632e/fd4af1567c0bcaa8-ac/s250x400/9c8d457de7f5f271d1b4bf909ac8468a0ac464ea.pnj">
-  <img src="https://64.media.tumblr.com/ee1e73d289b7cd437cab3c5a53200fc5/070c0179b2e69ac9-b6/s100x200/c646a02c478c52ade6317e2688bf6d1a3289570c.pnj">
-  <img src="https://64.media.tumblr.com/140db3dd9601740f6d382b32db6723cd/070c0179b2e69ac9-fe/s100x200/3f30b4baae5609e364b2144437247cee1f8ba372.pnj">
-  <img src="https://64.media.tumblr.com/30adc03e2ef5d986750dcc4963d79c4b/821e1b039c59d409-3d/s100x200/c0ed5fb142ae8db19719a2d2c860ecb8a99238c4.pnj">
-  <img src="https://64.media.tumblr.com/091478b200ce11bec1343608c52314e6/821e1b039c59d409-8c/s100x200/7137a3c013af8a702ff12f764863aaa1da9cd7de.pnj">
+  <img src="https://64.media.tumblr.com/ee1e73d289b7cd437cab3c5a53200fc5/070c0179b2e69ac9-b6/s100x200/c646a02c478c52ade6317e2688bf6d1a3289570c.pnj" alt="transgender">
+  <img src="https://64.media.tumblr.com/140db3dd9601740f6d382b32db6723cd/070c0179b2e69ac9-fe/s100x200/3f30b4baae5609e364b2144437247cee1f8ba372.pnj" alt="pansexual">
+  <img src="https://64.media.tumblr.com/30adc03e2ef5d986750dcc4963d79c4b/821e1b039c59d409-3d/s100x200/c0ed5fb142ae8db19719a2d2c860ecb8a99238c4.pnj" alt="aroflux">
+  <img src="https://64.media.tumblr.com/091478b200ce11bec1343608c52314e6/821e1b039c59d409-8c/s100x200/7137a3c013af8a702ff12f764863aaa1da9cd7de.pnj" alt="aceflux">
 </p>
 
 ![](https://64.media.tumblr.com/9035ec0020a8d3f83710e3b0107a2059/c401c185095f30ca-6e/s2048x3072/5ba960bec6a6ef775622c2770cebb015451ac33d.pnj)
